@@ -10,7 +10,7 @@ Das Qualifikationsnetzwerk hat sich aus den Arbeitskreisen der HSL 2023 und 2024
 Alle Mitglieder sind herzlich eingeladen über Task-Card (Link dazu wird bei Anmeldung auf den Mailverteiler mit verschickt) einen Steckbrief zu sich mit Forschungsinteressen, Expertise und unklaren Themenbereichen zu erstellen.
 
 ## **Wie kann ich mich in das Qualifikationsnetzwerk einbringen?**
-Es kann sich in den E-Mailverteiler selbstständig eingetragen (Passwort vergeben) und ausgetragen (Passwort notwendig) werden. [Zur Eintragung auf die Mailingsliste geht es hier.](https://lists.fu-berlin.de/listinfo/hkl-qualifikationsnetzwerk). Bitte bestätige die Anmeldung mit dem Link, der nach der Anmeldung zugesendet wird.
+Es kann sich in den E-Mailverteiler selbstständig eingetragen (Passwort vergeben) und ausgetragen (Passwort notwendig) werden. [Zur Eintragung auf die Mailingsliste geht es hier.](https://lists.fu-berlin.de/listinfo/hkl-qualifikationsnetzwerk).
 Der E-Mailverteiler wird für Folgendes genutzt:
 - Einladung zum Vorbereitungsbrainstorming (digital) für die Struktur der nächsten HSL.
 - Einladung/ Anfrage von Online-Meetings (fachspezifisch sowie emotionaler Support)
