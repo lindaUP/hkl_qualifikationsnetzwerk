@@ -1,4 +1,4 @@
-# **Das Qualifikationsnetzwerk der Hochschulkonferenz der Sonderpädagogik des Lernens**
+# **Das Qualifikationsnetzwerk der Hochschulkonferenz der Sonderpädagogik des Lernens** ![Logo](/hkl_qualifikationsnetzwerk/Logo_HSL.png)
 
 ## **Was ist die Hochschulkonferenz des Lernens?**
 Die Hochschulkonferenz Sonderpädagogik des Lernens (HSL) ist ein Gremium von Lehrenden und Forschenden im Arbeitsbereich Sonderpädagogik des Lernens. In jährlichen Konferenzen (gewöhnlicher Weise am 1. Freitag/ Samstag im Juli) treten wir in fachlichen Austausch auf wissenschaftlicher, bildungspolitischer und universitärer/ hochschuldidaktischer Ebene.
