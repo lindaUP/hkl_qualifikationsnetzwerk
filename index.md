@@ -12,7 +12,7 @@ Alle Mitglieder sind herzlich eingeladen über Task-Card (Link dazu wird bei Anm
 ## **Wie kann ich mich in das Qualifikationsnetzwerk einbringen?**
 Es kann sich in den E-Mailverteiler selbstständig eingetragen (Passwort vergeben) und ausgetragen (Passwort notwendig) werden. [Zur Eintragung auf die Mailingsliste geht es hier.](https://lists.fu-berlin.de/listinfo/hkl-qualifikationsnetzwerk). Bitte bestätige die Anmeldung mit dem Link, der nach der Anmeldung zugesendet wird.
 Der E-Mailverteiler wird für Folgendes genutzt:
-- Einladung zum Vorbereitungsbrainstorming (digital) für die Struktur der nächsten HKL.
+- Einladung zum Vorbereitungsbrainstorming (digital) für die Struktur der nächsten HSL.
 - Einladung/ Anfrage von Online-Meetings (fachspezifisch sowie emotionaler Support)
 - Versenden nützlicher Informationen (z. B. interessante Stellenausschreibungen).
 Der E-Mailverteiler wird moderiert.
