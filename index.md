@@ -1,4 +1,5 @@
 # **Das Qualifikationsnetzwerk der Hochschulkonferenz der Sonderpädagogik des Lernens** 
+
 ![Logo_HSL.png](https://github.com/lindaUP/hkl_qualifikationsnetzwerk/blob/76af54e926af269f7eb959edb95258139497a367/Logo_HSL.png)
 
 ## **Was ist die Hochschulkonferenz des Lernens?**
