@@ -1,7 +1,7 @@
 # **Das Qualifikationsnetzwerk der Hochschulkonferenz der Sonderpädagogik des Lernens**
 
 ## **Was ist die Hochschulkonferenz des Lernens?**
-Die Hochschulkonferenz Sonderpädagogik des Lernens ist ein Gremium von Lehrenden und Forschenden im Arbeitsbereich Sonderpädagogik des Lernens. In jährlichen Konferenzen treten wir in fachlichen Austausch auf wissenschaftlicher, bildungspolitischer und universitärer/ hochschuldidaktischer Ebene.
+Die Hochschulkonferenz Sonderpädagogik des Lernens ist ein Gremium von Lehrenden und Forschenden im Arbeitsbereich Sonderpädagogik des Lernens. In jährlichen Konferenzen (gewöhnlicher Weise am 1. Freitag/ Samstag im Juli) treten wir in fachlichen Austausch auf wissenschaftlicher, bildungspolitischer und universitärer/ hochschuldidaktischer Ebene.
 Wir veröffentlichen Stellungnahmen und Empfehlungen zu aktuellen Themen.
 Teilnehmende der Hochschulkonferenz Sonderpädagogik des Lernens sind alle Forschungs- und Arbeitsgruppen an Universitäten und Hochschulen im Bereich Sonderpädagogik des Lernens im deutschsprachigen Raum. Damit knüpft die Hochschulkonferenz an die Tradition des Fachgesprächs Förderschwerpunkt Lernen an, das von 2011 bis 2017 jährlich stattfand. Die Gründung der Hochschulkonferenz erfolgte beim Treffen 2022 in Leipzig. Zur Website der [Hochschulkonferenz des Lernens](https://www.uni-regensburg.de/humanwissenschaften/lernbehindertenpaedagogik/hochschulkonferenz-sonderpaedagogik-des-lernens/index.html).
 
