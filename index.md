@@ -1,4 +1,4 @@
-# **Das Qualifikationsnetzwerk der Hocschulkonferenz der Sonderpdädagogik des Lernens**
+# **Das Qualifikationsnetzwerk der Hochschulkonferenz der Sonderpädagogik des Lernens**
 
 ## **Was ist die Hochschulkonferenz des Lernens?**
 Die Hochschulkonferenz Sonderpädagogik des Lernens ist ein Gremium von Lehrenden und Forschenden im Arbeitsbereich Sonderpädagogik des Lernens. In jährlichen Konferenzen treten wir in fachlichen Austausch auf wissenschaftlicher, bildungspolitischer und universitärer/ hochschuldidaktischer Ebene.
